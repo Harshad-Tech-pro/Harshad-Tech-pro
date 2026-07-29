@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **harshadw.tech@gmail.com** 😊
 
 - 📫 **How to reach me:** harshadw.tech@gmail.com
-- 😄 **Pronouns:** Harshad Sir
+- 😄 **Pronouns:** Harshad
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
